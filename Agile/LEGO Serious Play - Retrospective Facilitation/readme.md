@@ -2,7 +2,7 @@
 Pictures from 
 
 
-- [Mobile Team Retro - 1/19/2018](https://www.flickr.com/gp/47333097@N08/339o5m){:target="_blank" rel="noopener"}
+- [Mobile Team Retro - 1/19/2018](https://www.flickr.com/gp/47333097@N08/339o5m)
 
 - [REGIS Team B Retro - 10/13/16]( https://www.flickr.com/gp/47333097@N08/r6oq19 )
 
