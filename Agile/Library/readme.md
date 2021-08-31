@@ -1,1 +1,7 @@
-[Pictures](https://photos.google.com/share/AF1QipOaJdP8IGQhJeKyFZ5t4dA4LKynuH9pXNn8pec-lYhlI5DW-9eOttOnV6-Ve0JVsQ?key=WXF5YVRRZGNjVEk4U1ZOT3YtanMzWHFCOUpIc3BB)
+
+#Pictures of libraries provided for staff members containing titles on agile, lean, kanban, leadership, design, etc.
+
+
+[Agile Explorer Library - August 2019 (Signal Place)] (https://photos.app.goo.gl/gWe8EYM8tJgjzrmt6)
+
+[Agile Explorer Library - January 2018 (Signal Place, Monteagele)](https://photos.app.goo.gl/EB9Xpdby4qYvXZT96)
