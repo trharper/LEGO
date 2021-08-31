@@ -1,5 +1,5 @@
 
-#Pictures of libraries provided for staff members containing titles on agile, lean, kanban, leadership, design, etc.  
+# Pictures of libraries provided for staff members containing titles on agile, lean, kanban, leadership, design, etc.  
 Established in Summer 2014.
 
 
