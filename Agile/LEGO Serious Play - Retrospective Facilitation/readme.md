@@ -1,5 +1,4 @@
-# LEGO Serious Play - Retrospective Facilitation
-Pictures from different sessions (stored on Flickr.com)
+# Pictures from different sessions (stored on Flickr.com)
 
 
 - [Mobile Team Retro - 1/19/2018](https://www.flickr.com/gp/47333097@N08/339o5m)
