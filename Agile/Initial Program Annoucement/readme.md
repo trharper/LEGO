@@ -1,1 +1,1 @@
-#Memo to staff announcing kickoff related activities
+# Memo to staff announcing kickoff related activities
